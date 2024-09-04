@@ -1,2 +1,4 @@
 # MidRetake
-แก้ครับผม
+Worada Tanunat
+46008
+NO. 27
